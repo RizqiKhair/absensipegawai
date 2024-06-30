@@ -1,2 +1,0 @@
-# absensipegawai
-Rizqi Khair
